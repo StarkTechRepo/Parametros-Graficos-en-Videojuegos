@@ -1,0 +1,1 @@
+# Los-parametros-graficos-de-los-videojuegos
